@@ -161,13 +161,12 @@ ruanyf/weekly   <https://github.com/ruanyf/weekly>
 
 阮一峰在过去 7 年对我的影响 https://zhuanlan.zhihu.com/p/36806706
 
-![1562121821042](E:\云空间\OneDrive\LCL_OUTPUT作品\Typora-github临时图片\1562121821042.png)
+
 
 #### - 陈素封-笨方法学写作
 
-![1562110564603](C:\Users\admin\AppData\Roaming\Typora\typora-user-images\1562110564603.png)
+![1562110612031](https://user-images.githubusercontent.com/6328022/60576314-c1563200-9daf-11e9-817a-c16e7b3805e4.png)
 
-[]()![1562110612031](C:\Users\admin\AppData\Roaming\Typora\typora-user-images\1562110612031.png)
 
-## 
+
 
